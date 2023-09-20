@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tess
 - 👀 I'm from VietNam
-- 💞️ I love Thuys
+- 💞️ I love ...
 - 📫 From TksFonggg with love
 
 <!---
